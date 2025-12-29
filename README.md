@@ -1,1 +1,0 @@
-# NeuroScope-AI
